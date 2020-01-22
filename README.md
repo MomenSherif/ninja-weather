@@ -2,4 +2,4 @@
 
 |Async Await 💜| Promises 💙 |
 |--|--|
-| Call back hell 💩 |  |
+| Call back hell 💩 | 🚀🚀🚀  |
